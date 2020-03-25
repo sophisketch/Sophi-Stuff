@@ -1,3 +1,3 @@
 # Sophi-Stuff
 
-cool person!
+cool person!I make a lot of art.
